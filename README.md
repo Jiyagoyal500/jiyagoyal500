@@ -41,7 +41,7 @@ Learning continuously.
 Leading confidently.  
 Growing consistently.  
 
-💫 *Turning ideas into impact, one line of code at a time.*
+💫 *Turning ideas into impact.*
 
 
 
