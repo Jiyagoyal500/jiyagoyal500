@@ -41,7 +41,7 @@ Learning continuously.
 Leading confidently.  
 Growing consistently.  
 
-💫 *Turning ideas into impact.*
+💫 *Turning ideas into impact*
 
 
 
